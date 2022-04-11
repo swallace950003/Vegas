@@ -1,2 +1,2 @@
 # Vegas
-Seasons 103 of the TV Show, "Vega$"
+Seasons 1-3 of the TV Show, "Vega$"
